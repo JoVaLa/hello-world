@@ -2,5 +2,12 @@
 just another repository
 
 hlkjhljhlhlhjlkjhmh
-jgkjgkjhgjkgjkhgjhgkjhgkg
+aanpassing via pull request
 ;nbhgkjhgkfhgfhjgfjhfgkl
+
+
+aanpas
+edit
+aanpas
+nog wat pull req aanpassing
+blabla
