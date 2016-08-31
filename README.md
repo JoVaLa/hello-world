@@ -2,7 +2,7 @@
 just another repository
 
 hlkjhljhlhlhjlkjhmh
-jgkjgkjhgjkgjkhgjhgkjhgkg
+aanpassing via pull request
 ;nbhgkjhgkfhgfhjgfjhfgkl
 
 
