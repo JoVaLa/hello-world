@@ -1,9 +1,7 @@
 # hello-world
 just another repository
 
-hlkjhljhlhlhjlkjhmh
-aanpassing via pull request
-;nbhgkjhgkfhgfhjgfjhfgkl
+handjes DRAAIEN
 
 
 aanpas
